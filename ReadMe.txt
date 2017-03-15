@@ -1,0 +1,1 @@
+This is the first time for me to use GitHub by myself and I am still trying to get to use to these staff
